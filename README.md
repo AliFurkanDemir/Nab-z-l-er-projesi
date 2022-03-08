@@ -1,1 +1,1 @@
-# Nab-z-l-er-projesi
+# Nabizolcer-projesi
